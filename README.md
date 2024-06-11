@@ -3,7 +3,8 @@
 I am Fethullen Nail Ravilevich.
 Date of birth: 17th December 1998 	Marital status: single
 Address:  Ulyanovsk 
-Phone number: +7 (927) 985-45-62	Email: fethullennail@yandex.ru 
+Phone number: +7 (927) 985-45-62	
+Email: fethullennail@yandex.ru 
 
 Education and qualifications:
 September 2015 - June 2019
