@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I am Fethullen Nail Ravilevich.\
+I am Fethullen Nail Ravilevich\
 Date of birth: 17th December 1998\
 Marital status: single\
 Address:  Ulyanovsk\
